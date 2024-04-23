@@ -49,9 +49,7 @@ And me who ediets the project
 
 Omar Mahmoud 
 
-LinkedIn 
-https://www.linkedin.com/in/omar-mahmoud-164057265?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
-
+[LinkedIn](https://www.linkedin.com/in/omar-mahmoud-164057265?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
 
 
